@@ -5,3 +5,4 @@ Hello, welcome to the Letsbonk.fun Bump bot! To take advantage of our free limit
 
 https://t.me/pump_fun_bump_bot ✅
 
+<img width="1024" height="1024" alt="bonkfun bump bot" src="https://github.com/user-attachments/assets/67017daf-6e32-47df-8226-c50fee798df6" />
